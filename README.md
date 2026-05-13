@@ -2,7 +2,7 @@
 **Senior Technical Analyst (ETL & FCCM)**  
 Cheras, Selangor, Malaysia  
 📧 muhammadnaimh@gmail.com | 📱 +60 19-604 3056  
-🔗 LinkedIn: linkedin.com/in/muhammada-naim-haris
+🔗 LinkedIn: [linkedin.com/in/muhammada-naim-haris](https://www.linkedin.com/in/muhammada-naim-haris/)
 
 ---
 
